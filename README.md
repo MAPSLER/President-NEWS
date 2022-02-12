@@ -1,2 +1,2 @@
-# President-NEWS
-https://president.gov.ua/
+# NEWS
+No description, website, or topics provided.
